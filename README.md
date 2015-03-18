@@ -9,5 +9,5 @@ ginofilho@gmail.com
 * [Linkedin] (http://www.linkedin.com/profile/higinofilho)
 * [Website] (https://www.higinofilho.com
 * [Resume]
-* 
+
 ## 2015 Work
