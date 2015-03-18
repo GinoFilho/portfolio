@@ -7,7 +7,7 @@ ginofilho@gmail.com
 
 * [Twitter] (https://twitter.com/higinofilho)
 * [LinkedIn] (http://www.linkedin.com/profile/view?id=252456430)
-* [Website] (https://www.higinofilho.com
+* [HiginoFilho.com] (https://www.higinofilho.com
 * [Resume]
 
 ## 2015 Work
